@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+The fixations of the moment are never really past. 
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+The music causes the migraines, but, often, it's worth it. 
